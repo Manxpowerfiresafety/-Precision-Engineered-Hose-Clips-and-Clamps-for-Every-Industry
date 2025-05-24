@@ -13,10 +13,10 @@ Quality is more than a promise at ManxImpex — it's the foundation of our work.
 <li>Custom Clamps: Tailored solutions based on specific dimensions, materials, and application requirements.</li>
 This wide variety ensures that ManxImpex can serve clients across multiple sectors with products tailored to exact needs.
 Engineering Excellence Meets Customer Focus<br>
-What truly differentiates ManxImpex from other manufacturers is the combination of cutting-edge manufacturing technology and a customer-first philosophy. The company's R&D team is constantly working to improve clamp design, testing new materials, and exploring better production methods to enhance product strength and reliability.<br>
+What truly differentiates ManxImpex from other manufacturers is the combination of cutting-edge manufacturing technology and a customer-first philosophy. The company's R&D team is constantly working to improve clamp design, testing new materials, and exploring better production methods to enhance product strength and reliability.<br><ul></ul>
 ManxImpex also understands that every customer is unique. From bulk orders for industrial supply chains to customized packaging and branding for OEMs, the company offers flexible, responsive service to meet each client’s requirements.<br>
-Pan-India Reach, Local Values
-With distribution networks spanning multiple states, ManxImpex is a  national exporter that maintains the personalized service of a local business. The company’s logistic systems are streamlined to ensure timely delivery and reduced lead times, no matter the destination.
+<h3>Pan-India Reach, Local Values</h3>
+With distribution networks spanning multiple states, ManxImpex is a  national exporter that maintains the personalized service of a local business. The company’s logistic systems are streamlined to ensure timely delivery and reduced lead times, no matter the destination.<br>
 Moreover, ManxImpex is committed to sustainable practices. The company minimizes waste, recycles scrap metal, and ensures environmentally responsible sourcing of raw materials. Its clamps are built to last, reducing the need for frequent replacements and helping industries lower their environmental footprint.
 Commitment to Safety and Standards
 All products from ManxImpex comply with relevant ISO and DIN standards, and undergo rigorous quality testing. This includes tensile strength testing, corrosion resistance checks, and pressure performance analysis. By maintaining strict quality control, the company ensures that every clamp leaving its facility offers the performance and dependability its customers have come to expect.
