@@ -17,12 +17,12 @@ What truly differentiates ManxImpex from other manufacturers is the combination 
 ManxImpex also understands that every customer is unique. From bulk orders for industrial supply chains to customized packaging and branding for OEMs, the company offers flexible, responsive service to meet each client’s requirements.<br></ul>
 <h3>Pan-India Reach, Local Values</h3>
 With distribution networks spanning multiple states, ManxImpex is a  national exporter that maintains the personalized service of a local business. The company’s logistic systems are streamlined to ensure timely delivery and reduced lead times, no matter the destination.<br>
-Moreover, ManxImpex is committed to sustainable practices. The company minimizes waste, recycles scrap metal, and ensures environmentally responsible sourcing of raw materials. Its clamps are built to last, reducing the need for frequent replacements and helping industries lower their environmental footprint.
-Commitment to Safety and Standards
-All products from ManxImpex comply with relevant ISO and DIN standards, and undergo rigorous quality testing. This includes tensile strength testing, corrosion resistance checks, and pressure performance analysis. By maintaining strict quality control, the company ensures that every clamp leaving its facility offers the performance and dependability its customers have come to expect.
-Looking Ahead
-As industries evolve and demand higher standards of performance, ManxImpex is poised for the future. With a growing focus on smart manufacturing, automation, and digital supply chain solutions, the company is investing in technologies that will redefine fastening systems for the next generation.
-Whether you’re an industrial buyer, a maintenance engineer, or an OEM looking for reliable hose clamps, ManxImpex is your go-to partner for secure, lasting connections. Trust in a name that delivers performance — clamp after clamp.
+Moreover, ManxImpex is committed to sustainable practices. The company minimizes waste, recycles scrap metal, and ensures environmentally responsible sourcing of raw materials. Its clamps are built to last, reducing the need for frequent replacements and helping industries lower their environmental footprint.<br>
+<h3>Commitment to Safety and Standards</h3>
+All products from ManxImpex comply with relevant ISO and DIN standards, and undergo rigorous quality testing. This includes tensile strength testing, corrosion resistance checks, and pressure performance analysis. By maintaining strict quality control, the company ensures that every clamp leaving its facility offers the performance and dependability its customers have come to expect.<br>
+<h3>Looking Ahead</h3>
+As industries evolve and demand higher standards of performance, ManxImpex is poised for the future. With a growing focus on smart manufacturing, automation, and digital supply chain solutions, the company is investing in technologies that will redefine fastening systems for the next generation.<br>
+Whether you’re an industrial buyer, a maintenance engineer, or an OEM looking for reliable hose clamps, ManxImpex is your go-to partner for secure, lasting connections. Trust in a name that delivers performance — clamp after clamp.<br>
 Get in touch with us:
 Website: https://manximpex.com/hose-clamps/ 
 Call us at:  +91- 7428115550, +91- 7065192900
