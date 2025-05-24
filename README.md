@@ -23,8 +23,12 @@ All products from ManxImpex comply with relevant ISO and DIN standards, and unde
 <h3>Looking Ahead</h3>
 As industries evolve and demand higher standards of performance, ManxImpex is poised for the future. With a growing focus on smart manufacturing, automation, and digital supply chain solutions, the company is investing in technologies that will redefine fastening systems for the next generation.<br>
 Whether you’re an industrial buyer, a maintenance engineer, or an OEM looking for reliable hose clamps, ManxImpex is your go-to partner for secure, lasting connections. Trust in a name that delivers performance — clamp after clamp.<br>
-Get in touch with us:
-Website: https://manximpex.com/hose-clamps/ 
-Call us at:  +91- 7428115550, +91- 7065192900
-E-mail: info@manximpex.com 
+<h3>Get in touch with us:</h3>
+<li>Website: https://manximpex.com/hose-clamps/ </li>
+<li>Call us at:  +91- 7428115550, +91- 7065192900</li>
+<li>E-mail: info@manximpex.com </li>
+<h4>Follow us on</h4>
+<li>Facebook: https://facebook.com/manximpex/</li>
+<li>Instagram: https://instagram.com/manximpex/ </li>
+<h5>Subscribe us on Youtube: https://youtube.com/@manximpex</h5>
 Our other article:  https://medium.com/@manxpowerfiresafety/hose-clip-clamps-79025d18b83b
